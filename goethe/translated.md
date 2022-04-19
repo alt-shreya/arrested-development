@@ -34,3 +34,13 @@ Der Schmerz, über den Goethe im ganzen Buch so deutlich gesprochen hatte, sollt
 Goethe distanzierte sich in seinen späteren Jahren davon.
 
 Es gibt viele ikonische Zitate, die noch heute gelten. Ich nenne ein paar Beispiele jetzt.
+
+## Wanderlust, Roman Elegies
+
+Von Jahren 1786 bis 1788 reiste Goethe nach Italien. Wahrend dieser Zeit hat er Römische Elegien geschrieben über die italienische Kultur.
+Heutzutage reisen Leute mehr für Instagram, als für sich selbst oder für Kulturtausch. Goethe hat versucht, um die Seele der Stadt aufzusaugen. Wie er das gemacht hat, stimme ich nicht ganz zu. Außerdem hat er das Konzept von Weltliteratur gegründet. 
+
+Wann ist etwas Weltliteratur?
+Zur Weltliteratur werden literarische Werke gezählt, die über nationale und regionale Grenzen hinweg große Verbreitung gefunden haben.
+
+## Universalgenie und seiner Lernprozess
