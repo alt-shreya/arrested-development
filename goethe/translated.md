@@ -29,6 +29,8 @@ Er ist voller schöner Sprache und Metaphern. Der war wohl Goethes sogennante Em
 
 Dieser Roman war einer der Hauptromane der Sturm-und-Drang-Zeit in der deutschen Literatur und beeinflusste die spätere Romantik Zeit. Nachdem der Roman veroefentlichte, hat Goethe mit Weimarer Klassik angefangen.
 
-Weil jeder sich auf unerwiderte Liebe bezieht, löste der Roman emotionale Turbulenzen aus. Au-erdem führte er auch zu Selbstmorden, die als "Werther-Effekt" bekannt sind. Goethe hat das nicht beabsichtigt . Der Schmerz, über den Goethe im ganzen Buch so deutlich gesprochen hatte, sollte eher warnen als blind inspirieren. Goethe distanzierte sich in seinen späteren Jahren davon.
+Weil jeder sich auf unerwiderte Liebe bezieht, löste der Roman emotionale Turbulenzen aus. Au-erdem führte er auch zu Selbstmorden, die als "Werther-Effekt" bekannt sind. Goethe hat das nicht beabsichtigt . 
+Der Schmerz, über den Goethe im ganzen Buch so deutlich gesprochen hatte, sollte eher warnen als blind inspirieren. 
+Goethe distanzierte sich in seinen späteren Jahren davon.
 
 Es gibt viele ikonische Zitate, die noch heute gelten. Ich nenne ein paar Beispiele jetzt.
