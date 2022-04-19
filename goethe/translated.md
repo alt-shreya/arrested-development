@@ -44,3 +44,17 @@ Wann ist etwas Weltliteratur?
 Zur Weltliteratur werden literarische Werke gezählt, die über nationale und regionale Grenzen hinweg große Verbreitung gefunden haben.
 
 ## Universalgenie und seiner Lernprozess
+
+Goethes Lernprozess ist weit verbreitet. Er verknüpft seine Gedanken domänenübergreifend.
+Goethe war, Spoileralarm, ein Mensch. Ich sage dies nicht, um die oft seltsamen Entscheidungen, die er im Laufe seines Lebens getroffen hat, sondern um daran zu erinnern, dass er ein Sterblicher war. Wenn man sich dafür entscheidet, sich von seinen erstaunlichen Philosophien inspirieren zu lassen, ist es auch wichtig, aus den Fehlern zu lernen, für die er verantwortlich war.
+
+Goethes verknüpften Gedanken, inspiriert mich. 
+Während meiner Schulzeit habe ich betont, wie wichtig es ist, Informationen zu integrieren und auf eine Weise zu lernen, die für mich funktioniert. 
+
+In der High School, insbesondere in der elften und zwölften Klasse, hatte ich Probleme, wenn ich mich von den herkömmlichen Antwortansätzen entfernte. Ich hatte immer dieses Gefühl, dass wir nur lernten zu antworten statt zu fragen. 
+
+Als ich im Uni war, hatte ich eine Sucht nach Lernen. Und ich habe nicht nur vom Schwarz-Weiß meiner Lehrbücher gelernt, sondern auch von den Farben des Lebens um mich herum.
+
+Als ich also von diesem alten weißen Mann erfuhr, war ich neugierig, was ich mit ihm gemeinsam haben würde. Goethe lernte sehr leidenschafftlich und schrieb nicht nur seinen Erfolg sondern auch seine Fehler auf.
+
+Ich bin neugierig, mehr darüber zu erfahren, wie er denkt.
