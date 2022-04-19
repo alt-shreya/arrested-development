@@ -24,3 +24,11 @@ Er ist quasi autobiografisch Roman - der erste von Goethe
  Der 1774 veröffentlichte Roman stellt den Briefwechsel zwischen dem jungen Juristen Werther und seinem Freund Wilhelm dar. 
  In den Briefen schildert Werther seine Liebe zu Lotte, die jedoch bereits verlobt ist. Aus Trauer über die unerfüllte Liebe begeht Werther am Ende Selbstmord.
  
+Der Roman gilt als die schoenste Liebesroman der deutschen Literatur. 
+Er ist voller schöner Sprache und Metaphern. Der war wohl Goethes sogennante Emo-Phase
+
+Dieser Roman war einer der Hauptromane der Sturm-und-Drang-Zeit in der deutschen Literatur und beeinflusste die spätere Romantik Zeit. Nachdem der Roman veroefentlichte, hat Goethe mit Weimarer Klassik angefangen.
+
+Weil jeder sich auf unerwiderte Liebe bezieht, löste der Roman emotionale Turbulenzen aus. Au-erdem führte er auch zu Selbstmorden, die als "Werther-Effekt" bekannt sind. Goethe hat das nicht beabsichtigt . Der Schmerz, über den Goethe im ganzen Buch so deutlich gesprochen hatte, sollte eher warnen als blind inspirieren. Goethe distanzierte sich in seinen späteren Jahren davon.
+
+Es gibt viele ikonische Zitate, die noch heute gelten. Ich nenne ein paar Beispiele jetzt.
