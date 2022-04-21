@@ -44,7 +44,7 @@ Zur Weltliteratur werden literarische Werke gezählt, die über nationale und re
 ## Universalgenie und seiner Lernprozess
 
 Goethes Lernprozess ist weit verbreitet. Er verknüpft seine Gedanken domänenübergreifend.
-Goethe war, Spoileralarm, ein Mensch. Ich sage dies nicht, um die oft seltsamen Entscheidungen, die er im Laufe seines Lebens getroffen hat, sondern um daran zu erinnern, dass er ein Sterblicher war. Wenn man sich dafür entscheidet, sich von seinen erstaunlichen Philosophien inspirieren zu lassen, ist es auch wichtig, aus den Fehlern zu lernen, für die er verantwortlich war.
+Goethe war, Spoileralarm, ein Mensch. Wenn man sich dafür entscheidet, sich von seinen erstaunlichen Philosophien inspirieren zu lassen, ist es auch wichtig, aus den Fehlern zu lernen, für die er verantwortlich war.
 
 Goethes verknüpften Gedanken, inspiriert mich. 
 Während meiner Schulzeit habe ich betont, wie wichtig es ist, Informationen zu integrieren und auf eine Weise zu lernen, die für mich funktioniert. 
