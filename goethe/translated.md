@@ -1,18 +1,14 @@
-Ich hatte von Goethe nur wegen des Instituts gehört, das wir schon kennen. 
-Eines Tages, als ich durch die Hallen meiner Bibliothek streifte, stiess ich auf einen Gedichtband, in dem auch eine Gedichte von Goethe zu sehen war. 
+Das Goethe-Institut ist das nationale Institut Deutschlands zur Förderung der deutschen Kultur in der Welt. Als ich meinen ersten Kurs am Institut begonnen hatte, fragte ich mich, warum dieses Institut nach Goethe bennant wurde.
 
-Ich wurde ihm durch ein Gedicht mit dem Titel «Der Fischer» vorgestellt.
-
-Das Goethe-Institut ist das nationale Institut Deutschlands zur Förderung der deutschen Kultur in der Welt.
 Wahrscheinlich liegt es daran, dass ich zu egozentrisch bin, aber wenn ich darüber nachdenke, will ich sofort eine Parallele zum Indien machen. 
 Ich frage mich, ob es solche Institut im Indien gibt. 
 
-Nach langem Suchen haben ich ein paar ehrenvolle Erwähnungen oder Nominierungen gefunden, 
+Nach langem Suchen haben ich ein paar ehrenvolle Erwähnungen gefunden, 
 dh WhatsApp Weiterleitungen, Alok Nath, Bekannten - sogennanten Onkel und Tanten die sagen das sei nicht unsere Kultur. Sie sind wirklich die Waechter unsere Kultur.
 Aber vielleicht diskutieren wir das später. Jetzt gehen wir zurück zum Goethe, der diese Rampenlicht besser verdient hat. 
 Sonst wären wir nachlässlig. Schließlich hat er viele Leuten zu inspiririen.
 
-Johann Wolfgang von Goethe war eine Universalgenie, der oft mit Shakespeare und Dante verglichen ist. Aber ich nehme an, dass ihr das schon wusstet. 
+Ich habe von Goethe wegen des Instituts gehört. Aber dann war er nur ein Name. Meine erste Einfuehrung zu Goethe war die Gedichte, ,,Der Fischer", die ich im Englisch gelesen hatte. Johann Wolfgang von Goethe war ein Dichter, Dramatiker, Romanautor, Wissenschaftler, Staatsmann, Theaterregisseur und Amateurkuenstler, dessen Genie oft mit Shakespeare und Dante verglichen ist. Was fuer eine Lebenslauf
 
 Wenn ihr seiner Lebensarbeit immer noch skeptisch gegenüberstehen, werden wir euch im Laufe dieser Präsentation Beweise liefern, 
 warum er ein perfekter Kandidat für die Benennung so eines Zentrums ist, das sich auf das Eintauchen in die Deutschkultur konzentriert.
