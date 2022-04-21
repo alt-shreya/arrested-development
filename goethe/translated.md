@@ -30,6 +30,7 @@ Weil jeder sich auf unerwiderte Liebe bezieht, löste der Roman emotionale Turbu
 Der Schmerz, über den Goethe im ganzen Buch so deutlich gesprochen hatte, sollte eher warnen als blind inspirieren. 
 Goethe distanzierte sich in seinen späteren Jahren davon.
 
+Ueber diesem Buch sagte er, es sei eine Schoepfung die er wie ein Pelikan mit dem Blut seinen eigenen Herzens gefuetterte.
 Es gibt viele ikonische Zitate, die noch heute gelten. Ich nenne ein paar Beispiele jetzt.
 
 ## Wanderlust, Roman Elegies
