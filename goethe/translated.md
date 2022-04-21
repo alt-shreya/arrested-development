@@ -22,7 +22,7 @@ Er ist quasi autobiografisch Roman - der erste von Goethe
  In den Briefen schildert Werther seine Liebe zu Lotte, die jedoch bereits verlobt ist. Aus Trauer über die unerfüllte Liebe begeht Werther am Ende Selbstmord.
  
 Der Roman gilt als die schoenste Liebesroman der deutschen Literatur. 
-Er ist voller schöner Sprache und Metaphern. Der war wohl Goethes sogennante Emo-Phase
+Er ist voller schöner Sprache und Metaphern. Meine Generation wuerde es wahrscheinlich die Emo-Phase des jungen Werthers parodieren
 
 Dieser Roman war einer der Hauptromane der Sturm-und-Drang-Zeit in der deutschen Literatur und beeinflusste die spätere Romantik Zeit. Nachdem der Roman veroefentlichte, hat Goethe mit Weimarer Klassik angefangen.
 
