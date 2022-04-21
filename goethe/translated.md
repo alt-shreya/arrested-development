@@ -6,7 +6,7 @@ Jetzt gehen wir zurück zu Goethe, der viele Leuten inspiririen muss.
 
 Ich habe von Goethe wegen des Instituts gehört. Aber dann war er nur ein Name. Meine erste Einfuehrung zu Goethe war die Gedichte, ,,Der Fischer". Aber er war kein gewoehnlicher Dichter. Johann Wolfgang von Goethe war ein Dichter, Dramatiker, Romanautor, Wissenschaftler, Staatsmann, Theaterregisseur und Amateurkuenstler, dessen Genie oft mit Shakespeare und Dante verglichen ist. Was fuer eine Lebenslauf
 
-Wenn ihr seiner Lebensarbeit immer noch skeptisch gegenüberstehen, werden wir euch im Laufe dieser Präsentation Beweise liefern, warum er ein perfekter Kandidat für die Benennung so eines Zentrums ist, das sich auf das Eintauchen in die Deutschkultur konzentriert.
+Falls ihr seiner Lebensarbeit immer noch skeptisch gegenübersteht, werden wir euch im Laufe dieser Präsentation Beweise liefern, warum er ein perfekter Kandidat für die Benennung so eines Zentrums ist, das sich auf das Eintauchen in die Deutschkultur konzentriert.
 
 ich erklaere kurz die Reihenfolge.
 zuerst wird Anuradha etwas ueber seinen Hintergrund erzaehlen.
