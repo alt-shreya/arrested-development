@@ -1,18 +1,19 @@
 Das Goethe-Institut ist das nationale Institut Deutschlands zur Förderung der deutschen Kultur in der Welt. Als ich meinen ersten Kurs am Institut begonnen hatte, fragte ich mich, warum dieses Institut nach Goethe bennant wurde.
 
-Wahrscheinlich liegt es daran, dass ich zu egozentrisch bin, aber wenn ich darüber nachdenke, will ich sofort eine Parallele zum Indien machen. 
-Ich frage mich, ob es solche Institut im Indien gibt. 
+Wahrscheinlich liegt es daran, dass ich egozentrisch bin, aber wenn ich darüber nachgedacht habe, habe ich sofort eine Parallele zum Indien gemacht. Ich fragte mich, ob es so ein Institut oder eine Gruppe im Indien gibt. Aber das ist eine Geschichte fuer spaeter. Wir kommen zu diese Frage am Ende.
 
-Nach langem Suchen haben ich ein paar ehrenvolle Erwähnungen gefunden, 
-dh WhatsApp Weiterleitungen, Alok Nath, Bekannten - sogennanten Onkel und Tanten die sagen das sei nicht unsere Kultur. Sie sind wirklich die Waechter unsere Kultur.
-Aber vielleicht diskutieren wir das später. Jetzt gehen wir zurück zum Goethe, der diese Rampenlicht besser verdient hat. 
-Sonst wären wir nachlässlig. Schließlich hat er viele Leuten zu inspiririen.
+Jetzt gehen wir zurück zu Goethe, der viele Leuten inspiririen muss.
 
-Ich habe von Goethe wegen des Instituts gehört. Aber dann war er nur ein Name. Meine erste Einfuehrung zu Goethe war die Gedichte, ,,Der Fischer", die ich im Englisch gelesen hatte. Johann Wolfgang von Goethe war ein Dichter, Dramatiker, Romanautor, Wissenschaftler, Staatsmann, Theaterregisseur und Amateurkuenstler, dessen Genie oft mit Shakespeare und Dante verglichen ist. Was fuer eine Lebenslauf
+Ich habe von Goethe wegen des Instituts gehört. Aber dann war er nur ein Name. Meine erste Einfuehrung zu Goethe war die Gedichte, ,,Der Fischer". Aber er war kein gewoehnlicher Dichter. Johann Wolfgang von Goethe war ein Dichter, Dramatiker, Romanautor, Wissenschaftler, Staatsmann, Theaterregisseur und Amateurkuenstler, dessen Genie oft mit Shakespeare und Dante verglichen ist. Was fuer eine Lebenslauf
 
-Wenn ihr seiner Lebensarbeit immer noch skeptisch gegenüberstehen, werden wir euch im Laufe dieser Präsentation Beweise liefern, 
-warum er ein perfekter Kandidat für die Benennung so eines Zentrums ist, das sich auf das Eintauchen in die Deutschkultur konzentriert.
+Wenn ihr seiner Lebensarbeit immer noch skeptisch gegenüberstehen, werden wir euch im Laufe dieser Präsentation Beweise liefern, warum er ein perfekter Kandidat für die Benennung so eines Zentrums ist, das sich auf das Eintauchen in die Deutschkultur konzentriert.
 
+ich erklaere kurz die Reihenfolge.
+zuerst wird Anuradha etwas ueber seinen Hintergrund erzaehlen.
+Dann sprechen wir abswechselnd ueber seine Lebenserfahrungen.
+Dann werfen wir Licht auf seine Genie.
+
+Jetzt reiche ich an Anuradha weiter.
 
 ## Die Leiden des jungen Werthers
 
@@ -54,3 +55,8 @@ Als ich im Uni war, hatte ich eine Sucht nach Lernen. Und ich habe nicht nur vom
 Als ich also von diesem alten weißen Mann erfuhr, war ich neugierig, was ich mit ihm gemeinsam haben würde. Goethe lernte sehr leidenschafftlich und schrieb nicht nur seinen Erfolg sondern auch seine Fehler auf.
 
 Ich bin neugierig, mehr darüber zu erfahren, wie er denkt.
+
+
+
+Nach langem Suchen haben ich ein paar ehrenvolle Erwähnungen gefunden, 
+dh WhatsApp Universitaeten, Alok Nath, Bekannten - sogennanten Onkel und Tanten die sagen das sei nicht unsere Kultur. Sie sind meine Meinung nach, wirklich die Waechter unsere Kultur.
