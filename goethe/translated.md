@@ -27,7 +27,7 @@ Er ist voller schöner Sprache und Metaphern. Meine Generation wuerde es wahrsch
 Dieser Roman war einer der Hauptromane der Sturm-und-Drang-Zeit in der deutschen Literatur und beeinflusste die spätere Romantik Zeit. Nachdem der Roman veroefentlichte, hat Goethe mit Weimarer Klassik angefangen.
 
 Weil jeder sich auf unerwiderte Liebe bezieht, löste der Roman emotionale Turbulenzen aus. Au-erdem führte er auch zu Selbstmorden, die als "Werther-Effekt" bekannt sind. Goethe hat das nicht beabsichtigt . 
-Der Schmerz, über den Goethe im ganzen Buch so deutlich gesprochen hatte, sollte eher warnen als blind inspirieren. 
+Der Schmerz, darüber Goethe im ganzen Buch so deutlich gesprochen hatte, sollte eher warnen als blind inspirieren. 
 Goethe distanzierte sich in seinen späteren Jahren davon.
 
 Ueber diesem Buch sagte er, es sei eine Schoepfung die er wie ein Pelikan mit dem Blut seinen eigenen Herzens gefuetterte.
