@@ -60,4 +60,4 @@ Ich bin neugierig, mehr darüber zu erfahren, wie er denkt.
 
 
 Nach langem Suchen haben ich ein paar ehrenvolle Erwähnungen gefunden, 
-dh WhatsApp Universitaeten, Alok Nath, Bekannten - sogennanten Onkel und Tanten die sagen das sei nicht unsere Kultur. Sie sind meine Meinung nach, wirklich die Waechter unsere Kultur.
+dh WhatsApp Universitaeten, Alok Nath, Bekannten - sogennanten Onkel und Tanten die sagen das sei nicht unsere Kultur. Sie sind meine Meinung nach, wirklich die Hueter unsere Kultur.
