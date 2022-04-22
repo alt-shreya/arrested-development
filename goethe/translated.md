@@ -53,7 +53,7 @@ In der High School, insbesondere in der elften und zwölften Klasse, hatte ich P
 
 Als ich im Uni war, hatte ich eine Sucht nach Lernen. Und ich habe nicht nur vom Schwarz-Weiß meiner Lehrbücher gelernt, sondern auch von den Farben des Lebens um mich herum.
 
-Als ich also von diesem alten weißen Mann erfuhr, war ich neugierig, was ich mit ihm gemeinsam haben würde. Goethe lernte sehr leidenschafftlich und schrieb nicht nur seinen Erfolg sondern auch seine Fehler auf.
+Ich war sehr neugierig, und ich hatte das gemeinsam mit Goethe. Goethe lernte sehr leidenschafftlich und schrieb nicht nur seinen Erfolg sondern auch seine Fehler auf.
 
 Ich bin neugierig, mehr darüber zu erfahren, wie er denkt.
 
