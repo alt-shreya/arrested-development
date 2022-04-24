@@ -6,7 +6,7 @@ Jetzt gehen wir zurück zu Goethe, der viele Leuten inspiririen muss.
 
 Ich habe von Goethe wegen des Instituts gehört. Aber dann war er nur ein Name. Meine erste Einfuehrung zu Goethe war die Gedichte, ,,Der Fischer". Aber er war kein gewoehnlicher Dichter. Johann Wolfgang von Goethe war ein Dichter, Dramatiker, Romanautor, Wissenschaftler, Staatsmann, Theaterregisseur und Amateurkuenstler, dessen Genie oft mit Shakespeare und Dante verglichen ist. Was fuer eine Lebenslauf
 
-Deswegen ist Goethe der perfekter Kandidat für die Benennung so eines Zentrums, das sich auf das Eintauchen in die Deutschkultur konzentriert. Falls ihr seiner Lebensarbeit immer noch skeptisch gegenübersteht, werden wir daran im Laufe dieser Präsentation Beweise liefern.
+Deswegen ist Goethe der perfekter Kandidat für die Benennung so eines Zentrums, das sich auf das Eintauchen in die Deutschkultur konzentriert. Falls ihr nicht ueberzeugt seid, und seiner Lebensarbeit immer noch skeptisch gegenübersteht, werden wir daran im Laufe dieser Präsentation Beweise liefern.
 
 ich erklaere kurz die Reihenfolge.
 zuerst wird Anuradha etwas ueber seinen Hintergrund erzaehlen.
@@ -22,12 +22,12 @@ Er ist quasi autobiografisch Roman - der erste von Goethe
  In den Briefen schildert Werther seine Liebe zu Lotte, die jedoch bereits verlobt ist. Aus Trauer über die unerfüllte Liebe begeht Werther am Ende Selbstmord.
  
 Der Roman gilt als die schoenste Liebesroman der deutschen Literatur. 
-Er ist voller schöner Sprache und Metaphern. Meine Generation wuerde es wahrscheinlich die Emo-Phase des jungen Werthers parodieren
+Er ist voller schöner Sprache und Metaphern. Dieser Roman war einer der Hauptromane der Sturm-und-Drang-Zeit. Deswegen wenn es heute veroeffentlichte, wuerde meine Generation es wahrscheinlich die Emo-Phase des jungen Werthers nennen. Sturm-und-Drang beeinflusste die spätere Romantik Zeit.
 
-Dieser Roman war einer der Hauptromane der Sturm-und-Drang-Zeit in der deutschen Literatur und beeinflusste die spätere Romantik Zeit. Nachdem der Roman veroefentlichte, hat Goethe mit Weimarer Klassik angefangen.
+ Nachdem der Roman veroefentlichte, hat Goethe mit Weimarer Klassik angefangen.
 
-Weil jeder sich auf unerwiderte Liebe bezieht, löste der Roman emotionale Turbulenzen aus. Au-erdem führte er auch zu Selbstmorden, die als "Werther-Effekt" bekannt sind. Goethe hat das nicht beabsichtigt . 
-Der Schmerz, darüber Goethe im ganzen Buch so deutlich gesprochen hatte, sollte eher warnen als blind inspirieren. 
+Dieser Roman hat eine grosse Einfluss oder Auswirkung der Jugendlichen. Weil jeder sich auf unerwiderte Liebe bezieht, löste der Roman emotionale Turbulenzen aus. Au-erdem führte er auch zu Selbstmorden, die jetztals "Werther-Effekt" bekannt sind. Goethe hat das nicht beabsichtigt . 
+Der Schmerz, darüber Goethe im ganzen Buch so deutlich gesprochen hatte, haette als Warnung statt als Inspiration genommen wuerde
 Goethe distanzierte sich in seinen späteren Jahren davon.
 
 Ueber diesem Buch sagte er, es sei eine Schoepfung die er wie ein Pelikan mit dem Blut seinen eigenen Herzens gefuetterte.
