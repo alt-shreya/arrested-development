@@ -2,7 +2,7 @@ Das Goethe-Institut ist das nationale Institut Deutschlands zur Förderung der d
 
 Wnn ich darüber nachgedacht habe, habe ich sofort eine Parallele zum Indien gemacht. Ich fragte mich, ob es so ein Institut oder eine Gruppe im Indien gibt. Wahrscheinlich liegt es daran, dass ich egozentrisch bin, aber we Aber das ist eine Geschichte fuer spaeter. Wir kommen zu diese Frage am Ende.
 
-Jetzt gehen wir zurück zu Goethe, der viele Leuten inspiririen muss.
+Jetzt gehen wir zurück zu Goethe, der viele Leuten inspiririen muss. 
 
 Ich habe von Goethe wegen des Instituts gehört. Aber dann war er nur ein Name. Meine erste Einfuehrung zu Goethe war die Gedichte, ,,Der Fischer". Aber er war kein gewoehnlicher Dichter. Johann Wolfgang von Goethe war ein Dichter, Dramatiker, Romanautor, Wissenschaftler, Staatsmann, Theaterregisseur und Amateurkuenstler, dessen Genie oft mit Shakespeare und Dante verglichen ist. Was fuer eine Lebenslauf
 
