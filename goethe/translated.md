@@ -1,6 +1,6 @@
 Das Goethe-Institut ist das nationale Institut Deutschlands zur Förderung der deutschen Kultur in der Welt. Als ich meinen ersten Kurs am Institut begonnen hatte, fragte ich mich, warum dieses Institut nach Goethe bennant wurde.
 
-Wahrscheinlich liegt es daran, dass ich egozentrisch bin, aber wenn ich darüber nachgedacht habe, habe ich sofort eine Parallele zum Indien gemacht. Ich fragte mich, ob es so ein Institut oder eine Gruppe im Indien gibt. Aber das ist eine Geschichte fuer spaeter. Wir kommen zu diese Frage am Ende.
+Wnn ich darüber nachgedacht habe, habe ich sofort eine Parallele zum Indien gemacht. Ich fragte mich, ob es so ein Institut oder eine Gruppe im Indien gibt. Wahrscheinlich liegt es daran, dass ich egozentrisch bin, aber we Aber das ist eine Geschichte fuer spaeter. Wir kommen zu diese Frage am Ende.
 
 Jetzt gehen wir zurück zu Goethe, der viele Leuten inspiririen muss.
 
